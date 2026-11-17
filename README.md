@@ -1,4 +1,4 @@
-# Hi, I'm ARN143m 👋
+# Hi, I'm Ahmad Reshad Nabi 👋
 
 > **Curious mind. Practical builder. Always learning.**
 
